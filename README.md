@@ -1,0 +1,1 @@
+# Ideas_From_ChatGPT
